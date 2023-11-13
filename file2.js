@@ -1,0 +1,1 @@
+Wojtek tez prowadzi szkolenie
